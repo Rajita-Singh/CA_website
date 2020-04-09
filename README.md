@@ -1,1 +1,1 @@
-This website is created by Rajita Singh of LPU - B.tech CSE and her classmates.
+This website is created by Rajita Singh,Neha Pamnani,Shivani of LPU - B.tech CSE.
